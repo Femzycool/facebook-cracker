@@ -3,7 +3,7 @@
 ### This program is for educational purposes only.
 ### Don't attack people facebook accounts it's illegal ! (punishable by law)
 ### If you want to crack into someone's account, you must have the permission from the user. 
-### Mauritania Attacker is not responsible (you will be responsible)
+### Mauritania and Nigerian Attacker is not responsible (you will be responsible)
 
 ### Whit is a facebook-cracker
 
